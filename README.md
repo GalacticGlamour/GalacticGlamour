@@ -1,2 +1,3 @@
 idk how to code. YOULL SEE EVERYTHING ON MY STRAWPAGE ANYWAY!!!!
 its better if you ask me in personal so we get 2 know eachother lel.......
+CUDDLE HUGS KISSES VERYYYYYYYYYYYYYYYYYYY ENCOURAGED
