@@ -1,1 +1,2 @@
-<img src="spotify-card.svg" alt="Now Playing on Spotify" width="460" />
+<img src="./assets/spotify-card.svg" alt="Now Playing on Spotify" width="460" />
+
