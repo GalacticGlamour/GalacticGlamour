@@ -11,7 +11,6 @@ CUDDLE HUGS KISSES VERYYYYYYYYYYYYYYYYYYY ENCOURAGED
   </a>
 </p>
 
-
 DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make my stupid assh strawpage raghhh wth..?
 
 if you're 18+, okay, i don't mind older friemds, but PLEASE, keep the tone down as much as possible! I usually log off when online spaces get too serious or corporate, I block/mute/hide freely, and I find it difficult to connect with adults in digital spaces, especially talking to them on social media. (its not your fault tho if you're an adult as welL!) UNSERIOUS!vulgarjokes are advised for close friends only! like literally super close, only ones that ive already met irl/or friends im comfortable/ and grew up with, im telling you, there are only a few.
