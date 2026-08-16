@@ -15,7 +15,6 @@ DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make m
         padding: 0;
         box-sizing: border-box;
       }
-      
       .spotify-embed-container {
         font-family: -apple-system, BlinkMacSystemFont, "Segoe UI", Helvetica, Arial, sans-serif;
         background-color: #181818;
@@ -27,7 +26,6 @@ DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make m
         width: 460px;
         height: 152px;
       }
-
       .album-cover-container {
         flex-shrink: 0;
         width: 120px;
@@ -36,13 +34,11 @@ DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make m
         overflow: hidden;
         background-color: #282828;
       }
-
       .album-cover {
         width: 100%;
         height: 100%;
         background: linear-gradient(135deg, #667eea 0%, #764ba2 100%);
       }
-
       .track-info-container {
         flex: 1;
         display: flex;
@@ -50,14 +46,12 @@ DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make m
         justify-content: space-between;
         height: 120px;
       }
-
       .track-details {
         flex: 1;
         display: flex;
         flex-direction: column;
         justify-content: center;
       }
-
       .track-name {
         color: #ffffff;
         font-size: 18px;
@@ -65,21 +59,18 @@ DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make m
         line-height: 24px;
         margin-bottom: 4px;
       }
-
       .artist-name {
         color: #b3b3b3;
         font-size: 14px;
         font-weight: 400;
         line-height: 20px;
       }
-
       .spotify-logo-container {
         display: flex;
         align-items: center;
         gap: 6px;
         margin-top: 8px;
       }
-
       .status-text {
         font-size: 11px;
         font-weight: 600;
@@ -87,7 +78,6 @@ DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make m
         letter-spacing: 0.5px;
         color: #1db954;
       }
-
       .progress-bar-bg {
         width: 100%;
         height: 4px;
@@ -96,13 +86,11 @@ DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make m
         overflow: hidden;
         margin-bottom: 6px;
       }
-
       .progress-bar-fill {
         height: 100%;
         background-color: #1db954;
         width: 45%;
       }
-
       .progress-times {
         display: flex;
         justify-content: space-between;
