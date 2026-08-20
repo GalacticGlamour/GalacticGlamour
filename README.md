@@ -7,6 +7,11 @@ CUDDLE HUGS KISSES VERYYYYYYYYYYYYYYYYYYY ENCOURAGED
 
 DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make my stupid assh strawpage raghhh wth..?
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ltsxck4kok6nxch246ryai5izq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>
 
 (16+ can talk to me unless you dont act all weird and iwec)
 
