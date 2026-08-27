@@ -1,11 +1,13 @@
 idk how to code. YOULL SEE EVERYTHING ON MY STRAWPAGE ANYWAY!!!! (unfortunately im still making it)
 immediately gave up on making a rentry layout my lazy bum just wont work
 
+use tonetags as much as possible with me. i overthink a lot..
+
 its better if you ask me in personal so we get 2 know eachother lel I DONT PLAY.......
 
 CUDDLE HUGS KISSES VERYYYYYYYYYYYYYYYYYYY ENCOURAGED
 
-(for randos and green names) please, do not be shy to snuggle with me when im cuddling someone you may not know. But they also might have DNI's that youre probably a part of, so always read b4 you interact w/ them (if they have a github or wtv social). I love cuddling and i can be very clingy, especially if youre one of my green names. though that clinginess gets to an extent when i see tha youre going far from my usual spots with someone i dont know that much, i am very approacheable, but i am also shy, so i will not chase after you because i just think that its really embarrasing.
+(for randos and green names): please, do not be shy to snuggle with me when im cuddling someone you may not know. But they also might have DNI's that youre probably a part of, so always read b4 you interact w/ them (if they have a github or wtv social). I love cuddling and i can be very clingy, especially if youre one of my green names. though that clinginess gets to an extent when i see tha youre going far from my usual spots with someone i dont know that much, i am very approacheable, but i am also shy, so i will not chase after you because i just think that its really embarrasing. so please dont expect/be offended that im not going to you so where really far and empty, i get really bored easily when i see little to no ponies, and i will leave you there. (unless im upset (which is rare), i wont leave you because that is the only time that i wanna be somewhere like those areas where no one can disturb me.)
 
 DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make my stupid assh strawpage raghhh wth..?
 
