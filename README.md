@@ -13,6 +13,20 @@ Look, don't be shy to drop in and snuggle up, even if I'm already cuddling someb
 I'm all about the snuggles and I get proper clingy, ESPECIALLY if you're one of my green names /gen /pos. But look, that clinginess has its limits, right? If I see you drifting off to some far-off spot with someone I barely know, I ain't chasing after you. I'm chill and easy to talk to, but I get shy too, and running across the map is just embarrassing, mate /lh /rt. So don't take it the wrong way or get offended if I don't follow you to some empty ghost town—if there aren't enough ponies around, I get bored outta my mind and I'm bouncing /light.
 (Only exception is if I'm genuinely upset, which almost never happens /gen. Then I actually want to be somewhere dead silent where nobody's gonna bother me.)
 Oh, and one last thing: if I start cuddling you and you just vanish instantly, it hits kind of rough /ref /sad. Unless you genuinely gotta run, just drop a quick explanation so I'm not stuck spiraling, alright? Overthinking is a whole constant battle over here /gen /sym.
+
+
+/gen – Genuine: Used to show sincere, real thoughts (e.g., about not caring for coding, or genuinely wanting to meet in person).
+/pos – Positive Connotation: Used to highlight happy, enthusiastic, or warm vibes (e.g., getting excited about the Strawpage or welcoming cuddles).
+/lh – lighthearted: Used so things sound relaxed, gentle, or soft rather than overly intense or harsh.
+/srs – Serious: Used to emphasize a firm boundary or real feeling, like keeping things real without fake drama.
+/platonic (or /p) – Platonic: Used to explicitly show that affectionate gestures (like cuddle hugs and kisses) are meant in a friendly, non-romantic way.
+/src – Serious / Critical: Used to stress the importance of taking someone's boundaries and DNI lists seriously.
+/nav – Not A Vent: Used to show that mentioning rules or boundaries is just informational, not complaining or venting.
+/rt – Rhetorical: Used for statements or questions that don't need a debate or formal response.
+/ref – Reference: Used to indicate a callback to something mentioned earlier in your original prompt.
+/sad – Sad Connotation: Used to express genuine bummer or hurt feelings (specifically about someone vanishing suddenly).
+/sym – Sympathetic / Empathetic: Used to offer gentle comfort and understanding around overthinking.
+
 DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make my stupid assh strawpage raghhh wth..?
 
 <p align="center">
