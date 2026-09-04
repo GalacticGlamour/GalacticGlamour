@@ -7,8 +7,12 @@ its better if you ask me in personal so we get 2 know eachother lel I DONT PLAY.
 
 CUDDLE HUGS KISSES VERYYYYYYYYYYYYYYYYYYY ENCOURAGED
 
-(for randos and green names): please, do not be shy to snuggle with me when im cuddling someone you may not know. But they also might have DNI's that youre probably a part of, so always read b4 you interact w/ them (if they have a github or wtv social). I love cuddling and i can be very clingy,,, especially if youre one of my green names. though that clinginess gets to an extent when i see thaT youre going far from my usual spots with someone i dont know that much, i am very approacheable, but i am also shy, so i will not chase after you because i just think that its really embarrasing. so please dont expect/be offended that im not going to you so where really far and empty, i get really bored easily when i see little to no ponies, and i will leave you there. (unless im upset (which is rare,,), i wont leave you because that is the only time that i wanna be somewhere like those areas where no one can disturb me.) I will be quite upset if you leave me quickly when i start to cuddle you (unless you really need to, sometimes, i just need a tiny explanation,,, again, i overthink very frequently,,,,,,)
+(Hobie brown mode: on)
 
+Look, don't be shy to drop in and snuggle up, even if I'm already cuddling somebody you don't recognize /pos. Just do a quick system check first—read their info before you interact, 'cause they might have boundaries or a DNI list you gotta respect /src /nav.
+I'm all about the snuggles and I get proper clingy, ESPECIALLY if you're one of my green names /gen /pos. But look, that clinginess has its limits, right? If I see you drifting off to some far-off spot with someone I barely know, I ain't chasing after you. I'm chill and easy to talk to, but I get shy too, and running across the map is just embarrassing, mate /lh /rt. So don't take it the wrong way or get offended if I don't follow you to some empty ghost town—if there aren't enough ponies around, I get bored outta my mind and I'm bouncing /light.
+(Only exception is if I'm genuinely upset, which almost never happens /gen. Then I actually want to be somewhere dead silent where nobody's gonna bother me.)
+Oh, and one last thing: if I start cuddling you and you just vanish instantly, it hits kind of rough /ref /sad. Unless you genuinely gotta run, just drop a quick explanation so I'm not stuck spiraling, alright? Overthinking is a whole constant battle over here /gen /sym.
 DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make my stupid assh strawpage raghhh wth..?
 
 <p align="center">
