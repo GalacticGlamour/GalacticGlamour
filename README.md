@@ -16,15 +16,25 @@ Oh, and one last thing: if I start cuddling you and you just vanish instantly, i
 
 
 /gen – Genuine: Used to show sincere, real thoughts (e.g., about not caring for coding, or genuinely wanting to meet in person).
+
 /pos – Positive Connotation: Used to highlight happy, enthusiastic, or warm vibes (e.g., getting excited about the Strawpage or welcoming cuddles).
+
 /lh – lighthearted: Used so things sound relaxed, gentle, or soft rather than overly intense or harsh.
+
 /srs – Serious: Used to emphasize a firm boundary or real feeling, like keeping things real without fake drama.
+
 /platonic (or /p) – Platonic: Used to explicitly show that affectionate gestures (like cuddle hugs and kisses) are meant in a friendly, non-romantic way.
+
 /src – Serious / Critical: Used to stress the importance of taking someone's boundaries and DNI lists seriously.
+
 /nav – Not A Vent: Used to show that mentioning rules or boundaries is just informational, not complaining or venting.
+
 /rt – Rhetorical: Used for statements or questions that don't need a debate or formal response.
+
 /ref – Reference: Used to indicate a callback to something mentioned earlier in your original prompt.
+
 /sad – Sad Connotation: Used to express genuine bummer or hurt feelings (specifically about someone vanishing suddenly).
+
 /sym – Sympathetic / Empathetic: Used to offer gentle comfort and understanding around overthinking.
 
 DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make my stupid assh strawpage raghhh wth..?
