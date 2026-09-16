@@ -16,13 +16,14 @@ Oh, and one last thing: if I start cuddling you and you just vanish instantly, i
 
 DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make my stupid assh strawpage raghhh wth..?
 
-read this READme first. i block freely /srs. DNC or hide my skins. it isn't that hard to be creative, only green names can ask me to gift them a skin /lh.
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ltsxck4kok6nxch246ryai5izq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
   </a>
 </p>
+
+read this READme first. i block freely /srs. DNC or hide my skins. it isn't that hard to be creative, only green names can ask me to gift them a skin /lh.
 
 (16+ can talk to me unless you dont act all weird and iwec)
 
