@@ -14,9 +14,6 @@ I'm all about the snuggles and I get proper clingy, ESPECIALLY if you're one of 
 (Only exception is if I'm genuinely upset, which almost never happens /gen. Then I actually want to be somewhere dead silent where nobody's gonna bother me.)
 Oh, and one last thing: if I start cuddling you and you just vanish instantly, it hits kind of rough /ref /sad. Unless you genuinely gotta run, just drop a quick explanation so I'm not stuck spiraling, alright? Overthinking is a whole constant battle over here /gen /sym.
 
-DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make my stupid assh strawpage raghhh wth..?
-
-
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ltsxck4kok6nxch246ryai5izq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
@@ -24,6 +21,8 @@ DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make m
 </p>
 
 read this READme first. i block freely /srs. DNC or hide my skins. it isn't that hard to be creative, only green names can ask me to gift them a skin /lh.
+
+DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make my stupid assh strawpage raghhh wth..?
 
 (16+ can talk to me unless you dont act all weird and iwec)
 
