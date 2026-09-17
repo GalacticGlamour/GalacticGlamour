@@ -1,20 +1,8 @@
-idk how to code. YOULL SEE EVERYTHING ON MY STRAWPAGE ANYWAY!!!! (unfortunately im still making it)
-immediately gave up on making a rentry layout my lazy bum just wont work
-
-use tonetags as much as possible with me. i overthink a lot..
-
-its better if you ask me in personal so we get 2 know eachother lel I DONT PLAY.......
-
-CUDDLE HUGS KISSES VERYYYYYYYYYYYYYYYYYYY ENCOURAGED
-
-(Hobie brown mode: on)
-
-Look, don't be shy to drop in and snuggle up, even if I'm already cuddling somebody you don't recognize /pos. Just do a quick system check first—read their info before you interact, 'cause they might have boundaries or a DNI list you gotta respect /src /nav.
-I'm all about the snuggles and I get proper clingy, ESPECIALLY if you're one of my green names /gen /pos. But look, that clinginess has its limits, right? If I see you drifting off to some far-off spot with someone I barely know, I ain't chasing after you. I'm chill and easy to talk to, but I get shy too, and running across the map is just embarrassing, mate /lh /rt. 
-
-So don't take it the wrong way or get offended if I don't follow you to some empty ghost town—if there aren't enough ponies around, I get bored outta my mind and I'm bouncing /light.
-(Only exception is if I'm genuinely upset, which almost never happens /gen. Then I actually want to be somewhere dead silent where nobody's gonna bother me.)
-Oh, and one last thing: if I start cuddling you and you just vanish instantly, it hits kind of rough /ref /sad. Unless you genuinely gotta run, just drop a quick explanation so I'm not stuck spiraling, alright? Overthinking is a whole constant battle over here /gen /sym.
+<details>
+  <summary>♡ clickk 4 info</summary>
+  
+  test
+</details>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
