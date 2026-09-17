@@ -1,5 +1,5 @@
 <details>
-  <summary>♡ info's here, mate! </summary>
+  <summary> info's here, mate! </summary>
 
 read this READme first. i block freely /srs. DNC or hide my skins. it isn't that hard to be creative, only green names can ask me to gift them a skin /lh.
   
