@@ -37,3 +37,5 @@ mind you, i share A LOT about myself (though it never gets that deep/instead it 
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ltsxck4kok6nxch246ryai5izq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
   </a>
 </p>
+
+[![Hits](https://hits.sh/github.com/patatescipsi/hits.svg?label=nihilists&color=cc1111&labelColor=000fff&logo=fandom)](https://hits.sh/github.com/patatescipsi/hits/)
