@@ -1,7 +1,7 @@
 <details>
   <summary> info's here, mate! </summary>
 
-read this READme first. i block freely /srs. DNC or hide my skins. it isn't that hard to be creative, only green names can ask me to gift them a skin /lh.
+read this READme first. i block freely /srs. DNC or cover my pony. will cover you back. it isn't that hard to be creative, only green names can ask me to gift them a skin /lh.
   
  idk how to code. YOULL SEE EVERYTHING ON MY STRAWPAGE ANYWAY!!!! (unfortunately im still making it)
 immediately gave up on making a rentry layout my lazy bum just wont work
