@@ -1,16 +1,49 @@
-## Hi there 👋
+<div align="center">
+ 
+  
+  
+  
+ㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Curlz+MT&duration=2510&pause=1000&color=F7BDF6C0&width=435&lines=Whiny+pleading+and+stupid+explanations;Desperate+begging+to+avoid+your+separation;Treat+me+like+you're+better+with+no+hesitation;No+hesitation%2C+with+no+hesitation;Kick+me+once+and+I'll+be+right+back+at+your+feet;Kick+me+again+when+I+return+you'll+have+a+treat)](https://git.io/typing-svg)
+  
+  <!-- Main Profile Lines (Clean, Centered, and Completely Safe) -->
+  <p>⋆🐾° <b>c+ h encouraged , clingy</b></p>
+  <p>⋆🐾° <b>Mostly offtab, w2i</b></p>
+  <p>⋆🐾° <b>still trying to figure out my tritype, but i' am ISFP-A</b></p>
 
-<!--
-**GalacticGlamour/GalacticGlamour** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  <br>
 
-Here are some ideas to get you started:
+  
+  <details>
+    <summary>ᯠ <b>my info. must open.ᐟ</b>  ᯄ꠹</summary>
+    <br>
+    
+    >⩊<
+    
+    read this README first. i block freely /srs. DNC or cover my pony. will cover you back. it isn't that hard to be creative, only green names can ask me to gift them a skin /lh.
+    idk how to code. YOULL SEE EVERYTHING ON MY STRAWPAGE ANYWAY!!!! (unfortunately im still making it) immediately gave up on making a rentry layout my lazy bum just wont work
+    use tonetags as much as possible with me. i overthink a lot..
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+    >⩊<
+    
+    its better if you ask me in personal so we get 2 know eachother lel I DONT PLAY.......
+    CUDDLE HUGS KISSES VERYYYYYYYYYYYYYYYYYYY ENCOURAGED
+    anyway, dont b shy to snuggle and cuddle, even if im with someone you dont recognize, but you need to check their BYI first. Im all about them snuggles and i get super duper clingy, ESPECIALLY if youre one of my green names!! pls bear with me!! though, that clinginess gets to a point. 
+    if i see you drifting off to some far-off spot with someone I barely know, im just not chasing after you! I'm chill and easy to talk to, but I get shy too, and running across the map is just embarrassing for me hahahs.
+    
+    >⩊<
+    
+    So don't take it the wrong way or get offended if I don't follow you to some empty spot, if there aren't enough ponies around, I get bored and I'm leaving /lh! (only exception is when im upset, which is rare)
+    one last thing. if i start cuddling you. and you leave. constantly. its kind of sad. unless you genuinely need to go. just drop a tiny explanation. even a tiny one. overthinking is a constant battle.
+    DNI: basic dni criteria,,,, Putting sum info here in the meantime while i make my stupid assh strawpage raghhh wth..?</p>
+    
+    >⩊<
+    
+    (16+ can talk to me unless you dont act all weird and iwec)
+    if you're 18+, okay, i don't mind older friends, but PLEASE, keep the tone down as much as possible! I usually log off when online spaces get too serious or corporate, I block/mute/hide freely, and I find it difficult to connect with adults in digital spaces, especially talking to them on social media. (its not your fault if you're an adult tho!) 
+    UNSERIOUS!vulgarjokes are advised for close friends only! like literally super close, only ones that ive already met irl/or friends im comfortable/ and grew up with.
+    mind you, i share A LOT about myself (though it never gets that deep/instead it gets to a specific/certain point) when i find a new cool friend /srs. I might share too much, so i permanently deleted ALL my socials (old accounts/thatwould/could trigger me) to avoid being someone who 
+    i was before on the internet (cyberbullying, being rude in general/but i toned it down i soon as i realized). I did it mostly on Discord. snapchat, no no. i wouldnt want you to recommend that to me. because in that app, if you show your face to me all the time, or just sending me snaps in general, i may lose control and also gradually show my face as well.
+
+  </details>
+
+</div>
