@@ -1,10 +1,12 @@
 <div align="center">
  
   
-  
+ <img width="705" height="348" alt="tumblr_cc734abcfd30f0223c35bc20d5e630cb_c6cca0ef_1280" src="https://github.com/user-attachments/assets/77187c9d-c1ad-4242-8dca-509a4a9a1555" />
+
+
   
 ㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Curlz+MT&duration=2510&pause=1000&color=F7BDF6C0&width=435&lines=Whiny+pleading+and+stupid+explanations;Desperate+begging+to+avoid+your+separation;Treat+me+like+you're+better+with+no+hesitation;No+hesitation%2C+with+no+hesitation;Kick+me+once+and+I'll+be+right+back+at+your+feet;Kick+me+again+when+I+return+you'll+have+a+treat+:3)](https://git.io/typing-svg)
-  
+ 
   <!-- Main Profile Lines (Clean, Centered, and Completely Safe) -->
   <p>⋆🐾° <b>c+ h encouraged , clingy</b></p>
   <p>⋆🐾° <b>Mostly offtab, w2i</b></p>
@@ -43,6 +45,8 @@
     UNSERIOUS!vulgarjokes are advised for close friends only! like literally super close, only ones that ive already met irl/or friends im comfortable/ and grew up with.
     mind you, i share A LOT about myself (though it never gets that deep/instead it gets to a specific/certain point) when i find a new cool friend /srs. I might share too much, so i permanently deleted ALL my socials (old accounts/thatwould/could trigger me) to avoid being someone who 
     i was before on the internet (cyberbullying, being rude in general/but i toned it down i soon as i realized). I did it mostly on Discord. snapchat, no no. i wouldnt want you to recommend that to me. because in that app, if you show your face to me all the time, or just sending me snaps in general, i may lose control and also gradually show my face as well.
+
+<img width="701" height="264" alt="tumblr_bbae15641eded4874f7d822579732200_87c44e9f_1280" src="https://github.com/user-attachments/assets/6cf53f48-c72b-48b2-9fe5-9b937657be16" />
 
   </details>
 
