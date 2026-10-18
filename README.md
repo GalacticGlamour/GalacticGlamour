@@ -46,8 +46,9 @@
     mind you, i share A LOT about myself (though it never gets that deep/instead it gets to a specific/certain point) when i find a new cool friend /srs. I might share too much, so i permanently deleted ALL my socials (old accounts/thatwould/could trigger me) to avoid being someone who 
     i was before on the internet (cyberbullying, being rude in general/but i toned it down i soon as i realized). I did it mostly on Discord. snapchat, no no. i wouldnt want you to recommend that to me. because in that app, if you show your face to me all the time, or just sending me snaps in general, i may lose control and also gradually show my face as well.
 
+  </details>
+
 <img width="701" height="264" alt="tumblr_bbae15641eded4874f7d822579732200_87c44e9f_1280" src="https://github.com/user-attachments/assets/6cf53f48-c72b-48b2-9fe5-9b937657be16" />
 
-  </details>
 
 </div>
