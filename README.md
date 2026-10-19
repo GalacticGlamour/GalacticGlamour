@@ -6,7 +6,7 @@
 
 
   
-ㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Curlz+MT&duration=2510&pause=1000&color=F7BDF6C0&width=435&lines=Whiny+pleading+and+stupid+explanations;Desperate+begging+to+avoid+your+separation;Treat+me+like+you're+better+with+no+hesitation;No+hesitation%2C+with+no+hesitation;Kick+me+once+and+I'll+be+right+back+at+your+feet;Kick+me+again+when+I+return+you'll+have+a+treat+:3)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Gigi&duration=3210&pause=1000&color=F7D9E9&background=FFFFFF00&width=435&lines=Whiny+pleading+and+stupid+explanations;Desperate+begging+to+avoid+your+separation;Treat+me+like+you're+better+with+no+hesitation;No+hesitation%2C+with+no+hesitation;Kick+me+once+and+i'll+be+right+back+at+your+feet;Kick+me+again+when+i+return+you%E2%80%B2ll+have+a+treat+%3A3)](https://git.io/typing-svg)
  
   <!-- Main Profile Lines (Clean, Centered, and Completely Safe) -->
   <p>⋆🐾° <b>c+ h encouraged , clingy</b></p>
