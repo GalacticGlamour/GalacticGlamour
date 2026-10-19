@@ -52,6 +52,6 @@
 <img width="198" height="112" alt="tumblr_a337e19b52961dfd570380c7d9a0b85f_d94c2cef_250" src="https://github.com/user-attachments/assets/fa83d380-9ace-4158-9076-d064d817586a" />
 <img width="198" height="112" alt="tumblr_7bec0480124c62a13fae0631af68ca08_9fc401c9_250" src="https://github.com/user-attachments/assets/9cb829c4-b12e-46ba-b07f-a5a8200c7544" />
 
-
+[![Hits](https://hits.sh/github.com/PoobKitty.svg?color=f4d5ff&labelColor=b8fdec&logo=4chan)](https://hits.sh/github.com/PoobKitty/)
 
 </div>
