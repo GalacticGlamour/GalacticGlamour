@@ -10,9 +10,9 @@
  
   <!-- Main Profile Lines (Clean, Centered, and Completely Safe) -->
   <p>⋆🐾° <b>c+ h encouraged , clingy</b></p>
-  <p>⋆🐾° <b>Mostly offtab, w2i</b></p>
-  <p>⋆🐾° <b>still trying to figure out my tritype, but i' am ISFP-A</b></p>
-  <p>⋆🐾° <b>no, i dont support rickorty</b></p>
+  <p>⋆🐾° <b>Mostly offtab , w2i</b></p>
+  <p>⋆🐾° <b>still trying to figure out my tritype , but i' am ISFP-A</b></p>
+  <p>⋆🐾° <b>no , i dont support rickorty</b></p>
 
   <br>
 
